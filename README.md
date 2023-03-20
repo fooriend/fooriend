@@ -1,3 +1,3 @@
-# fooriend
-👩‍💻👩‍💻
-@standha @MEGUMMY1
+# FOOD + Friend = Fooriend
+# 👩‍💻 @standha
+# 👩‍💻 @MEGUMMY1
